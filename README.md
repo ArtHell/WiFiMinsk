@@ -1,0 +1,2 @@
+# WiFiMinsk
+Looking for WiFi?
